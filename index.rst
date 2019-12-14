@@ -1,6 +1,6 @@
 Make Money Online with Bitcoin and cryptocurrencies:
 ----------------------
-`Sphinx <http://sphinx-doc.org/>`_
+`crypto Hyip <https://www.cryptofaucets.org/crypto-hyip-sites/>`_
 
 
 You can get the latest development source from our `Github repository
