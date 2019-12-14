@@ -15,6 +15,6 @@ Here's a list of legitimate post and articles to make money online fast:
 * `منصات تداول البيتكوين <https://www.cryptofaucets.org/>`_ : افضل منصات ومواقع تداول البيتكوين
 * `تحويل البيتكوين إلى أموال <https://www.bitcoindz.com/p/convert-bitcoin-to-cash.html>`_ : افضل الطرق لتحويل البيتكوين.
 * `سعر البيتكوين <https://www.bitcoindz.com/p/bitcoin-price-btc-usd.html>`_ : سعر البيتكوين.
-* `How to Invest in Forex and Binary Options <https://www.cryptofaucets.org/>`_ : How to Invest in Forex and Binary Options.
+* `How to Invest in Forex and Binary Options <https://www.bit-sites.com/how-to-invest-in-forex-and-binary-options/>`_ : How to Invest in Forex and Binary Options.
 
 Ways to make money online without a website or blog is becoming much more common (and easier). These are some of the most useful content to help set yourself with success during your online money making journey.
