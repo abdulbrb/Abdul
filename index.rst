@@ -1,6 +1,6 @@
 Make Money Online with Bitcoin and cryptocurrencies:
 ----------------------
-`crypto Hyip <https://www.cryptofaucets.org/crypto-hyip-sites/>`_
+* `crypto Hyip <https://www.cryptofaucets.org/crypto-hyip-sites/>`_ : Best Crypto Hyip websites.
 
 
 You can get the latest development source from our `Github repository
