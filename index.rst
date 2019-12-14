@@ -14,7 +14,6 @@ Here's a list of legitimate post and articles to make money online fast:
 * `Crypto Faucets <https://www.cryptofaucets.org/>`_ : Best Crypto Faucets.
 * `منصات تداول البيتكوين <https://www.cryptofaucets.org/>`_ : افضل منصات ومواقع تداول البيتكوين
 * `تحويل البيتكوين إلى أموال <https://www.bitcoindz.com/p/convert-bitcoin-to-cash.html>`_ : افضل الطرق لتحويل البيتكوين.
-* ` العاب لربح المال الحقيقي <https://www.bitcoindz.com/p/best-money-making-games.html>`_ :  العاب لربح المال الحقيقي.
 * `سعر البيتكوين <https://www.bitcoindz.com/p/bitcoin-price-btc-usd.html>`_ : سعر البيتكوين.
 * `How to Invest in Forex and Binary Options <https://www.cryptofaucets.org/>`_ : How to Invest in Forex and Binary Options.
 
