@@ -1,6 +1,6 @@
 Make Money Online with Bitcoin and cryptocurrencies:
 ----------------------
-If you’re looking for legit ways to make money online, this list for you. I personally this article list of ways to earn cash from the comfort of your own home.
+If you’re looking for legit ways to make money online, this list for you. I personally use this article list of ways to earn cash from the comfort of my own home.
 Here's a list of legitimate post and articles to make money online fast: 
 
 * `crypto Hyip <https://www.cryptofaucets.org/crypto-hyip-sites/>`_ : Best Crypto Hyip websites.
