@@ -20,5 +20,7 @@ Here's a list of legitimate post and articles to make money online fast:
 * `Crypto Cloud Mining <https://www.cryptofaucets.org/best-cloud-mining/>`_ : Best Bitcoin and Crypto Cloud Mining Sites Reviewed.
 * `Bitcoin Hyip Sites <https://www.bit-sites.com/top-bitcoin-hyips-sites/>`_ : Top Bitcoin Hyip Sites.
 * `How to Invest in Forex and Binary Options <https://www.bit-sites.com/how-to-invest-in-forex-and-binary-options/>`_ : How to Invest in Forex and Binary Options.
+* `مواقع التعدين السحابي <https://www.bitcoindz.com/p/best-bitcoin-mining-investment-sites.html>`_ : افضل مواقع تعدين و استثمار البيتكوين ( cloud mining )
+
 
 Ways to make money online without a website or blog is becoming much more common (and easier). These are some of the most useful content to help set yourself with success during your online money making journey.
